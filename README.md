@@ -1,2 +1,2 @@
 # author_ber11
-Public Health
+Illia Horenko
