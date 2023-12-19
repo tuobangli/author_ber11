@@ -1,2 +1,2 @@
 # author_ber11
-apply Kaplan 
+waiting for one week, apply Kaplan 
