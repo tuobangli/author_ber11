@@ -1,2 +1,2 @@
 # author_ber11
-waiting for one week, apply Kaplan 
+waiting for the decision, if not, apply Kaplan 
