@@ -1,3 +1,3 @@
 100-110
 
-Seri Pacific Hotel Kuala Lumpur
+Seri Pacific Hotel Kuala Lumpur 
