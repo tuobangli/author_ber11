@@ -7,4 +7,4 @@ go to another hotel
 
 9
 
-
+Soho Suites KLCC by iRent365 Kuala Lumpur
