@@ -5,6 +5,6 @@ go to another hotel
 
 80-90
 
-9
+15
 
 Soho Suites KLCC by iRent365 Kuala Lumpur
