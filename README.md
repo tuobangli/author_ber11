@@ -1,1 +1,1 @@
-Saipan Shining Star Hotel
+Eric Johnson
