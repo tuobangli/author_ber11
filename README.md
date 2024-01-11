@@ -1,1 +1,1 @@
-stay in Saipan for one more day.
+after to HK, back to Saipan again.
