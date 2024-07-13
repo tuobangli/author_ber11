@@ -1,1 +1,1 @@
-transfer to other UC campus in spring
+appeal for transfer decision
